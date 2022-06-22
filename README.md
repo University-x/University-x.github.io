@@ -1,1 +1,1 @@
-# University-x.github.io
+# Universityx.github.io
